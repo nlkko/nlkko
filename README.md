@@ -1,1 +1,1 @@
-Hi, I’m nikko 👋
+Hi, I’m Nikola 👋
